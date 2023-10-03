@@ -6,3 +6,7 @@
 - gosto de jogar bola
 - gosto de ir na academia 
 
+### entre em contato comigo
+
+📫fabricio.tsuboi@escola.pr.gov.br
+https://media.tenor.com/6FpkJhahq6cAAAAd/dance-dancing.gif
