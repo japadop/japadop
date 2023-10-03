@@ -9,4 +9,5 @@
 ### entre em contato comigo
 
 📫fabricio.tsuboi@escola.pr.gov.br
-- https://media.tenor.com/6FpkJhahq6cAAAAd/dance-dancing.gif
+
+ ![](https://media.tenor.com/6FpkJhahq6cAAAAd/dance-dancing.gif)
